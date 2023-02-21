@@ -1,0 +1,1 @@
+# Ai-algorithms-for-the-classifications-of-the-Kazakh-Alphabet
